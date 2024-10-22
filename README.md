@@ -5,5 +5,5 @@
 - 👯 I’m looking to collaborate on anything
 - 📫 How to reach me: Email is prefered
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Hardcore sweety gamer
+- ⚡ Fun fact: Hardcore sweaty gamer
 
